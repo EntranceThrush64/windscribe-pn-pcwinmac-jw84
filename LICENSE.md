@@ -1,4 +1,4 @@
-# 
+# Top Windscribe VPN extensions for Mac OS | Elite Windscribe VPN extensions for PC Windows. Featuring real-time monitoring and security audits — optimized for maximum performance on every platform.
 
 
 
